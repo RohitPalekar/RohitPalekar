@@ -44,7 +44,7 @@
 ---
 
 ### 📫 Connect with Me
-- **LinkedIn**: [Rohit Palekar](www.linkedin.com/in/RohitPalekar/)  
+- **LinkedIn**: [Rohit Palekar](https://www.linkedin.com/in/rohitpalekar/)  
 - **Instagram**: @itz_rohittt._  
 - **YouTube**: [Rohit Palekar]( Cooming Soon )
 
